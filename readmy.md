@@ -1,3 +1,3 @@
 hola
 1/7/2022
-gano san lorenzo
+gano 3 a 0 san lorenzo
